@@ -1,2 +1,2 @@
-# mammonegifts-store
-Digital Solutions provider
+Welcome to MammoneGifts.Store ✨
+PixieGifts.store is your trusted digital marketplace for vouchers, gift cards and digital solutions in Malawi. We make it simple, fast, and secure to purchase digital products from leading platforms such as Amazon, gaming services, entertainment providers, and more. With convenient payment options including Airtel Money, TNM Mpamba, and Bank Transfer, we deliver value with speed and reliability. Our mission is to make digital shopping accessible, affordable, and hassle-free while providing excellent customer support every step of the way.
